@@ -2,7 +2,7 @@
 
 Welcome to the part-list wiki!
 
-[Click To Get A Quote For Any NSN, Aviation & Electronic Parts  (https://www.valleyofparts.com)](https://www.valleyofparts.com)
+[Click To Get A Quote For Any NSN, Aviation & Electronic Parts](https://forms.gle/zb5Qi9NdgbbANaDG6)
 
 | 645947-1                             | 109-0605-24-12                                  | 9800-96814-0000                   | HMF-BG-135-115                          |
 | ------------------------------------ | ----------------------------------------------- | --------------------------------- | --------------------------------------- |
